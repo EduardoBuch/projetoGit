@@ -1,6 +1,1 @@
-Aoooba
-
-
-Leia isso
-teste
-teste1
+Reescrevendo o texto
